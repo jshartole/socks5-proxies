@@ -13,9 +13,9 @@
 
 本文将列出目前市场上最佳 的那些高速SOCKS5 代理商。
 
-### 1.activate
+### 1[proxy-seller](https://proxy-seller.com/zh/?partner=SLE7S1AY2VB4KE)
 
-activate在其ip数据库中提供超过 1 亿个代理 IP 。
+proxy-seller在其ip数据库中提供超过 1 亿个代理 IP 。
 
 他们拥有该行业中一些最好的高速socks5代理，并且他们具有额外功能，包括轮换以及会话控制。
 
@@ -23,7 +23,7 @@ activate在其ip数据库中提供超过 1 亿个代理 IP 。
 
 免费试用不必与他们分享你的信用卡详细信息，这使他们成为目前高速socks5代理服务的最好的代理公司之一。
 
-到activate看看
+到aproxy-seller看看
 
 ### 2.Bright Data
 
