@@ -13,7 +13,7 @@
 
 本文将列出目前市场上最佳 的那些高速SOCKS5 代理商。
 
-### 1[proxy-seller](https://proxy-seller.com/zh/?partner=SLE7S1AY2VB4KE)
+## [1.proxy-seller](https://proxy-seller.com/zh/?partner=SLE7S1AY2VB4KE) 优惠码 WABYOB_842929
 
 proxy-seller在其ip数据库中提供超过 1 亿个代理 IP 。
 
@@ -23,7 +23,7 @@ proxy-seller在其ip数据库中提供超过 1 亿个代理 IP 。
 
 免费试用不必与他们分享你的信用卡详细信息，这使他们成为目前高速socks5代理服务的最好的代理公司之一。
 
-到aproxy-seller看看
+[到aproxy-seller看看](https://proxy-seller.com/zh/?partner=SLE7S1AY2VB4KE) 优惠码 WABYOB_842929
 
 ### 2.Bright Data
 
